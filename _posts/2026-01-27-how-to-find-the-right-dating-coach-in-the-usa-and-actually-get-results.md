@@ -1,7 +1,7 @@
 ---
 layout: post
 title: “How to Find the Right Dating Coach in the USA (And Actually Get Results)”
-categories: [expedate, dating coaching, singles, relationships, expedate dating coaching app]
+categories: [expedate, dating coaching, singles, relationships, expedate dating coaching app, expeDATE, dating coaching app, dating coach app, AI dating coach, online dating coaching, dating advice app, relationship coaching app, virtual dating coach, personalized dating advice, online dating profile help, dating tips for singles, confidence coaching for dating, dating coach for men, dating coach for women, modern dating advice, how to improve my dating life, dating anxiety help, how to get better matches online, online dating coach USA, best dating coaching app]
 image: assets/images/hae5.jpg
 ---
 
