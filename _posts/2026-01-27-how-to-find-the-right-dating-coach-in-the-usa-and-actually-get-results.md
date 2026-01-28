@@ -140,6 +140,6 @@ Download expeDATE and turn your phone into the dating coach you’ve been lookin
 
 #### About expeDATE Dating Coaching App
 
-expeDATE Dating Coaching App is for anyone who’s tired of guessing their way through modern dating and wants clear, practical guidance without paying for an expensive human coach. Instead of piecing together random tips from friends, TikTok, and articles, expeDATE gives you a structured path to better matches, better conversations, and better relationships—right on your phone.
+expeDATE is like having a personal trainer for your love life, without the cost, scheduling, or pressure of 1:1 coaching. It’s built for people who are tired of dead‑end dates, confusing signals, and repeating the same patterns, and who want clear, honest guidance they can actually act on.
 
-With expeDATE dating Coaching App, you get the core benefits of dating coaching—personalized guidance, confidence building, communication skills, and accountability without awkward intake calls or high hourly fees. The app helps you clarify what you want, upgrade your profile and messages, practice real‑world scenarios, and work through anxiety or patterns that keep you stuck, so you can finally feel in control of your love life.
+Instead of just telling you “love will happen when you least expect it,” expeDATE looks at how you’re dating your profile, your messages, your choices, and helps you spot what isn’t working so you can change it. It gives you structured programs, realtime feedback, and tough but kind coaching exercises to rebuild confidence, raise your standards, and start meeting people who genuinely fit your values and long term goals.
